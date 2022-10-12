@@ -1,0 +1,1 @@
+Anular Training October 2022
